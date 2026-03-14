@@ -1,0 +1,2 @@
+# sharp.-ai
+trade analyst 
